@@ -8,7 +8,7 @@
 
 <br><br>
 
-<a href="https://youtu.be/maayqyNRVoU?si=V0o0wDq81uYf2KAk">
+<a href="https://whatsapp.com/channel/0029Vb83EfU96H4YfMrMJF18/100">
   <img src="https://i.ibb.co.com/4Z8j5x2Z/emix-1775710374161.webp" alt="Mahid Bot" height="280" style="border-radius:20px; box-shadow: 0 8px 32px rgba(0,255,136,0.3);">
 </a>
 
